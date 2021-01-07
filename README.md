@@ -1,2 +1,2 @@
 # My-UI-Projects ✔🎉
-These are only a part of my projects , Most of the other projects are private due to the companies policies 👀
+These are only a part of my projects , Some of the projects are private due to the companies policies 👀
